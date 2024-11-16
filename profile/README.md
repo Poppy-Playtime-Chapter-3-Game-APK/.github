@@ -6,7 +6,7 @@ Poppy Playtime Chapter 3 APK is the latest installment in the popular horror-puz
 
 In this chapter, players encounter new characters, solve intricate puzzles, and unravel deeper secrets of the eerie factory. Poppy Playtime Chapter 3 expands upon the suspenseful storytelling and innovative gameplay of its predecessors, creating an immersive and spine-chilling experience.  
 
-
+![37326030-updxyyej-v4](https://github.com/user-attachments/assets/891c16d6-cf61-4853-bcd4-191a98a13343)
 ---
 
 ## Graphics in Poppy Playtime Chapter 3 APK  
